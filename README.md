@@ -1,0 +1,2 @@
+# premium-frit-coat-001-frit-coating-surface-texture
+Your frit coating experiments are scattered across notebooks, forgotten photos, and half-finished ideas—losing track of what works before you can scale it. The Frit Coating &amp; Surface Texture Bead Craft Hub is a centralized Notion template that captures every coating detail, surface finish, and texture outcome so you never lose a winning technique a
